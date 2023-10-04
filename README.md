@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I am researcher and freelancer too, so currently learning some tools regarding video editing, content writing, chemical research, and photo editing.
 
 <!--
 **syedmehran04/syedmehran04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
